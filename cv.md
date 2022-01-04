@@ -13,3 +13,10 @@ Skills
 + Good communication skills
 + Creative problem solving
 
+# Volunteer work
++ Founder of the non-governmental organization that helps families from eastern Ukraine since the beginning of the conflict with Russia. Judicial assistance, providing information, support, material help, gathering donations. Help in relocation, educational transfer and help in searching for a new place to live.
+
+
+
+
+
